@@ -1,0 +1,1 @@
+The nurturing Spirit of the Lord never dies; this is called the mysterious womb. The gate of this mysterious womb is called the root of heaven and earth. Its work continues without end, seeming yet not seen; its use is never exhausted.
