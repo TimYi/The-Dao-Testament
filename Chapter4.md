@@ -1,0 +1,1 @@
+God is hollow, yet in using Him, He is not exhausted. He is unfathomably deep, the origin of all things. He dulls the sharp, unties the entangled, harmonizes the light, and mingles with the dust. He is clear and profound, as if He were, yet is not. I do not know from whom He is born; He existed before all creation.
