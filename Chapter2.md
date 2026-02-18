@@ -1,0 +1,3 @@
+When the world agrees on a single standard for "beauty," ugliness is born. When all claim to possess "goodness," injustice itself arises. Being and non-being give rise to each other; difficulty and ease complete one another. Long and short are known only in contrast; high and low are defined in relation. Notes harmonize to create music; before and after follow to form sequence. This is the eternal law.
+
+Therefore, the Perfect One acts without forcing His own will and teaches without relying on empty words. He lets all things unfold according to their nature, without interference; He sustains all creation, yet claims no credit; His work is accomplished, yet He takes no glory. Precisely because He does not claim it, the accomplishment and glory never depart from Him.
