@@ -1,0 +1,1 @@
+Heaven and earth abide forever. The reason heaven and earth can endure so long is that they do not live for themselves, and thus they obtain everlasting life. Therefore, the wise man who humbles himself will be exalted; he who loses his life will preserve it. Is it not because he sought not his own gain, that he gained his own reward?
